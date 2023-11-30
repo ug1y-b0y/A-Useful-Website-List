@@ -1,12 +1,12 @@
 ### 1-本子
 
-#### ---[禁漫天堂](https://18comic.vip/)
+- [禁漫天堂](https://18comic.vip/)
 
-#### ---[EHentai](https://e-hentai.org)
+- [EHentai](https://e-hentai.org)
+ 
+- [Sankaku](https://chan.sankakucomplex.com/)
 
-#### ---[Sankaku](https://chan.sankakucomplex.com/)
-
-#### ---[哔咔漫画](https://manhuabika.com/phome/)
+- [哔咔漫画](https://manhuabika.com/phome/)
 
 ### 2-里番
 
