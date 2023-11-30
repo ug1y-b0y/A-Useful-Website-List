@@ -14,124 +14,110 @@
 
 - [Myself](https://myself-bbs.com/portal.php)
 
-## 💨💨💨 bt
+## 💨💨💨 AnimeBT
 
 - [动漫花园](https://share.dmhy.org/) 📌
 
-https://mikanani.me/ 
+- [蜜柑计划](https://mikanani.me/)
 
-http://comicat.org/    
+- [漫猫](http://comicat.org/)
 
-https://bangumi.moe/    
+- [萌番组](https://bangumi.moe/)
 
-https://kisssub.org/   
+- [爱恋](https://kisssub.org/)
 
-## 💨💨💨 图片：
+## 💨💨💨 图片
 
-https://www.pixiv.net/  ❤
+- [Pixiv](https://www.pixiv.net/) 📌
 
-https://konachan.net/ 
+- [Konachan](https://konachan.net/)
 
 ## 💨💨💨 漫画
 
-https://www.copymanga.site/  ❤
+- [拷贝漫画](https://www.copymanga.site/) 📌
 
-https://www.soman.com/  ❤ 
+- [搜漫](https://www.soman.com/)
 
-http://www.mangabz.com/
+- [Mangabz](http://www.mangabz.com/)
 
-## 💨💨💨 galgame
+## 💨💨💨 Galgame
 
-https://2dfan.org/  ❤
+- [2DFan](https://2dfan.org/) 📌
+  
+- [量子](https://lzacg.one/)
 
-https://galgame.noto.so/  ❤
+- [第三酒馆](https://galgame.noto.so/) 📌
 
-https://lzacg.one/  ❤
+- [灵梦御所](https://blog.reimu.net/)
 
-https://blog.reimu.net/
+- [vndb](https://vndb.org/)
 
-https://vndb.org/
+- [月幕](https://www.ymgal.games/index)
 
-https://bbs.kfpromax.com/index.php
+- [天使二次元](https://www.tianshi2.cc/)
 
-https://www.ymgal.games/index
+- [次元狗](https://www.acgndog.com/)
 
-https://www.tianshi2.cc/ 
+- [初音的青葱](https://www.fufugal.com/home)
 
-https://www.acgndog.com/ 
+- [ZHacg](https://pan.zhacg.com/Onedrive/game)
 
-https://xn--9iq009hj5c.xyz/
+- [Onsplayer](http://onsplayer.cn/) 
 
-https://www.fufugal.com/home
+- [songjiayu](https://setu.fun/) 
 
-https://pan.zhacg.com/Onedrive/game
-
-http://onsplayer.cn/ (phone)
-
-https://setu.fun/ (补丁)
-
-https://kagurafan.com/ (补丁)
+- [KaguraFan](https://kagurafan.com/)
 
 ## 💨💨💨 轻小说
 
-https://www.wenku8.net/index.php  ❤
+- [轻小说文库](https://www.wenku8.net/index.php) 📌
 
-https://www.lightnovel.us/  ❤
+- [魔笔小说](https://www.mobinovels.com/)
 
-https://www.mobinovels.com/ 
+- [轻之国度](https://www.lightnovel.us/) 📌
 
-https://www.lightnovel.app/home
+- [轻书架](https://www.lightnovel.app/home)
 
-https://www.yodu.org/
+- [有度](https://www.yodu.org/)
 
 ## 💨💨💨 论坛
 
-https://bangumi.tv/  
+- [绯月](https://bbs.kfpromax.com/index.php)
 
-https://bbs.zdfx.net/  
+- [Bangumi](https://bangumi.tv/)
 
-https://www.sayhuahuo.com/forum.php  
+- [终点](https://bbs.zdfx.net/)
 
-https://www.hacg.me/  
+- [琉璃神社](https://www.hacg.me/)
 
 ------
 
 ## 💨💨💨 BT种子
 
-https://bt1207zx.top/  ❤
+- [BT1207](https://bt1207zx.top/)
 
-https://www.bt-tt.com/
+- [BT天堂](https://www.bt-tt.com/)
 
 ## 💨💨💨 在线观影
 
-https://cupfox.app/  ❤
+- [茶杯狐](https://cupfox.app/)
 
-https://ddrk.me/
+- [低端影视](https://ddrk.me/)
 
 ## 💨💨💨 其他
 
-[https://wc3818290.home.blog/站点规则/](https://wc3818290.home.blog/站点规则/)  
+- [Yealico站点规则/](https://wc3818290.home.blog/)
 
-https://www.q1cloud.me/  (机场)
+- [Sleazy Fork](https://sleazyfork.org/zh-CN)
 
-https://btsow.beauty/  （bt下载）
+- [SmallPDF](https://smallpdf.com/cn)
 
-https://greasyfork.org/zh-CN (油猴)
+- [Yandex](https://yandex.com/)
 
-https://sleazyfork.org/zh-CN (油猴)
+- [Nexusmods](https://www.nexusmods.com/games)
 
-https://jixia.icu/ (百度云转直链)
+- [BeautifulAI](https://www.beautiful.ai/)
 
-https://smallpdf.com/cn (转格式)
+- [Wallpaper](https://wallpaperscraft.com/catalog/anime)
 
-https://yandex.com/ (俄国搜索引擎)
-
-https://www.nexusmods.com/games (mods)
-
-https://www.beautiful.ai/  (制作ppt)
-
-https://zlibrary-china.se/  (电子书)
-
-https://wallpaperscraft.com/catalog/anime  （壁纸）
-
-https://sms-activate.org/getNumber  （短信）
+- [SMS](https://sms-activate.org/getNumber)
