@@ -1,24 +1,22 @@
-# 网站
+## 💨💨💨 动画
 
-## 1.动画：
+- [Eacg](https://eacg.net/)
 
-https://eacg.net/  ❤
+- [Age](https://www.agemys.com/) 📌
 
-https://www.agemys.com/
+- [樱空](https://www.maigo.cc/)
 
-https://www.maigo.cc/
+- [酷动漫](http://kudm.vip/)
 
-http://kudm.vip/
+- [Anime1](https://anime1.me/)
 
-https://anime1.me/
+- [五弹幕](https://www.5dm.app/)
 
-https://www.5dm.app/
+- [Myself](https://myself-bbs.com/portal.php)
 
-https://myself-bbs.com/portal.php
+## 💨💨💨 bt
 
-## bt
-
-https://share.dmhy.org/  ❤
+- [动漫花园](https://share.dmhy.org/) 📌
 
 https://mikanani.me/ 
 
@@ -28,13 +26,13 @@ https://bangumi.moe/
 
 https://kisssub.org/   
 
-## 2.图片：
+## 💨💨💨 图片：
 
 https://www.pixiv.net/  ❤
 
 https://konachan.net/ 
 
-## 3.漫画
+## 💨💨💨 漫画
 
 https://www.copymanga.site/  ❤
 
@@ -42,7 +40,7 @@ https://www.soman.com/  ❤
 
 http://www.mangabz.com/
 
-## 4.galgame
+## 💨💨💨 galgame
 
 https://2dfan.org/  ❤
 
@@ -74,7 +72,7 @@ https://setu.fun/ (补丁)
 
 https://kagurafan.com/ (补丁)
 
-## 5.轻小说
+## 💨💨💨 轻小说
 
 https://www.wenku8.net/index.php  ❤
 
@@ -86,7 +84,7 @@ https://www.lightnovel.app/home
 
 https://www.yodu.org/
 
-## 论坛
+## 💨💨💨 论坛
 
 https://bangumi.tv/  
 
@@ -98,19 +96,19 @@ https://www.hacg.me/
 
 ------
 
-## 1.BT种子
+## 💨💨💨 BT种子
 
 https://bt1207zx.top/  ❤
 
 https://www.bt-tt.com/
 
-## 2.在线观影
+## 💨💨💨 在线观影
 
 https://cupfox.app/  ❤
 
 https://ddrk.me/
 
-## 其他
+## 💨💨💨 其他
 
 [https://wc3818290.home.blog/站点规则/](https://wc3818290.home.blog/站点规则/)  
 
@@ -137,8 +135,3 @@ https://zlibrary-china.se/  (电子书)
 https://wallpaperscraft.com/catalog/anime  （壁纸）
 
 https://sms-activate.org/getNumber  （短信）
-
-------
-
-##  ***色色✔*** 图穷匕见！！！
-
