@@ -104,7 +104,7 @@
 
 ## 💨💨💨 其他
 
-- [Yealico站点规则/](https://wc3818290.home.blog/)
+- [Yealico站点规则](https://wc3818290.home.blog/)
 
 - [Sleazy Fork](https://sleazyfork.org/zh-CN)
 
