@@ -46,9 +46,9 @@
   
 - [量子](https://lzacg.one/)
 
-- [第三酒馆](https://galgame.noto.so/) 📌
-
-- [灵梦御所](https://blog.reimu.net/)
+- [灵梦御所](https://blog.reimu.net/) 📌
+  
+- [第三酒馆](https://galgame.noto.so/) 
 
 - [vndb](https://vndb.org/)
 
