@@ -1,5 +1,7 @@
 ## 💨💨💨 动画
 
+- [西瓜卡通](https://www.xgcartoon.com/) 📌
+
 - [Eacg](https://eacg.net/)
 
 - [Age](https://www.agemys.com/) 📌
