@@ -98,6 +98,8 @@
 
 - [BT天堂](https://www.bt-tt.com/)
 
+- [磁力熊](https://www.cilixiong.com/) 
+
 ## 💨💨💨 在线观影
 
 - [茶杯狐](https://cupfox.app/)
